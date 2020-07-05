@@ -2,7 +2,7 @@
 
 **Why Are There Protests Over the Death of George Floyd?**
 
-
+## [Notes](https://hesy-zhoulijie.github.io/20summer-news/2020%E5%B9%B47%E6%9C%885%E6%97%A5/Notes/)
 
 The Telegraph (U.K.)
 
